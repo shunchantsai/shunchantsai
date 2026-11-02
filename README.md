@@ -2,8 +2,6 @@
 
 Systems geographer working on climate and catastrophe risk, and on geopolitical and information systems.
 
-**Portfolio:** [Systems Geography, Climate Risk & Geopolitical Analysis](https://github.com/shunchantsai/portfolio)
-
 ### Selected work
 
 **Physical geography & catastrophe risk**
