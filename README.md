@@ -17,6 +17,6 @@ Systems geographer working on climate and catastrophe risk, and on geopolitical 
   The KMT’s Beijing channel as a systemic risk to Taiwan’s negotiating coherence
 
 Background: BSc Geography, MSc Climate Change, MRes Urban Sustainability & Resilience (UCL)  
-Contact: shunchantsa@gmail.com  
+Contact: shunchantsai@gmail.com  
 
 Open to CAT modelling, climate-risk consulting, and related research roles.
